@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JackHD
+- 👀 I’m interested in incoding shts
+- 🌱 I’m currently learning thing on the internet lol
